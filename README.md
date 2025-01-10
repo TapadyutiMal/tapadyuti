@@ -1,2 +1,0 @@
-# tapadyuti
-programmer,progate
